@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ProletarianBanner(Hoxha Cat)
+- 👋 Hi, I’m @ProletarianBanner(Hoxha Cat)(Or: Pickaxe and Rifle)
 - 👀 I’m interested in Computer Science, Computer Programming, Software Engineering, Gaming, and various other technological interests.
 - 🌱 I’m currently learning the principles of Marxism-Leninism.
 - 💞️ I’m looking to collaborate on achieving the stateless, classless and moneyless society known as communism where the means of production are commonly owned.
